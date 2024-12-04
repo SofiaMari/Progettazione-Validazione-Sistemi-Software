@@ -1,1 +1,0 @@
-# Progettazione-Validazione-Sistemi-Software
